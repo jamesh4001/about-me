@@ -12,4 +12,14 @@
 - P7: Lunch :P
 - P8: Big History Project with Ms. Musacchio
 
+### Favorite Videogames / Most Used Apps
+- Instagram
+- Spotify
+- Clash of Clans
+- Rocket League
+- Discord
+- Youtube
+- Heroes Quest
+- RecRoom
+- 
 
