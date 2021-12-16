@@ -13,8 +13,8 @@
 - P8: **Big History Project** with Ms. Musacchio
 
 ### Favorite Videogames / Most Used Apps
-- Instagram
-- Spotify
+- [Instagram](https://www.instagram.com/_yojamez/)
+- [Spotify](https://open.spotify.com/playlist/62kyfXVUdrKNIKirS7vPhD)
 - Clash of Clans
 - Rocket League
 - Discord
